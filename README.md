@@ -6,7 +6,7 @@
 📚 Always learning and sharing insights on innovation in healthtech<br/>
 <br/>
 
-🔗 Connect with me on [LinkedIn](www.linkedin.com/in/aymen-dibane-55509b276)
+🔗 Connect with me on [LinkedIn](www.linkedin.com/in/aymendibane)
 
 
 
